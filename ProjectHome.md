@@ -1,0 +1,1 @@
+Large scale, multi-scene camera-based interactive installation to be premiered in Auckland, NZ.
